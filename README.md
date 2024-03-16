@@ -1,8 +1,8 @@
 ![code](https://github.com/jordy291093/jordy291093/assets/112351586/5cfc4997-83b9-4403-9410-74a9263a6d1c)
 
 
-# :tw-1f4c4: Sobre mí:
-Hola mi nombre es ¡Jordy! Tengo un tiempo programando como desarrollador web, tengo algunos proyectos hechos por mí, aparte estoy estudiando la carrera y cursos para obtener<br>más conocimientos de tecnologías y lenguajes de programación.<br><br>¡¡Saludos desde México :tw-1f1ee-1f1f9: !!<br>
+# :wave: Sobre mí:
+Hola mi nombre es ¡Jordy! Tengo un tiempo programando como desarrollador web :computer:, tengo algunos proyectos hechos por mí, aparte estoy estudiando la carrera y cursos para obtener :nerd_face: más conocimientos de tecnologías y lenguajes de programación.<br><br>¡¡Saludos desde México!!<br>
 
 
 ## 🌐 Sociales:

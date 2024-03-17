@@ -1,5 +1,4 @@
-![image](https://github.com/jordy291093/jordy291093/assets/112351586/0dd4c0be-6176-4c78-8c86-1559e1862a0a)
-
+![image](https://github.com/jordy291093/jordy291093/assets/112351586/e629badd-6325-4511-8a19-e129bad70d4d)
 
 
 # :wave: Sobre mí:
